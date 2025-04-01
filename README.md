@@ -27,6 +27,6 @@ A solo participant in the NASA Space Apps challenge, I crafted the **Cosmic Soni
 
 ## Connect with Me
 
-Let's connect and collaborate! You can find me on [![Linkedin](https://i.stack.imgur.com/gVE0j.png)](https://linkedin.com/in/morad-sayed).
+Let's connect and collaborate! You can find me on [![Linkedin](https://i.stack.imgur.com/gVE0j.png)](https://www.linkedin.com/in/moradsinger).
 
 
